@@ -8,7 +8,7 @@ Advertising partners and other third parties may use cookies, scripts and/or web
 
 ## Changes To This Privacy Policy
 
-This Privacy Policy is effective as of 06/28/2022 and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
+This Privacy Policy is effective as of 08/03/2022 and will remain in effect except with respect to any changes in its provisions in the future, which will be in effect immediately after being posted on this page.
 
 We reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy, we will notify you either through the email address you have provided us, or by placing a prominent notice on our app.
 
